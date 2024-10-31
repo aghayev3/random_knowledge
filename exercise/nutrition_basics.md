@@ -108,11 +108,3 @@
 * 2) Keep goals realistic
 * 3) Slow and steady with occasional mids
 * 4) Avoid fads!!! (more on that later)
-
-
-
-
-
-
-
-
