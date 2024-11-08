@@ -84,8 +84,56 @@ postulate a hypothesis advanced as an essential presupposition, condition, or pr
 * If individuals cooperate -> survivability goes up for everyone
 * Better to be on a team - more powerful
 * Individual success enables team success
+* Short-sightedness is not good 
+* Cooperation over Short-sighted Competition 
+* Survival is team sport 
+* Improvement is the surest way to increase survivability 
 
 
+## The four factors that improve long-term survivability 
+
+* Numerical multiplication
+* Spatial expansion
+* Diversification
+* Transformative ability
+
+
+## Summary of the points discussed
+
+* Life is better than Death
+* Setting up for survival in the future promotes life in the future
+* Make yourself more survivable by improving yourself
+
+
+## Caring for Society and Environment
+
+* Even in selfish ways, cooperation is the best
+* Help the next generation to improve the standard of life
+* Care for the environment and the society 
+* Society should be of major concern
+* Don't shit in your own tent -> don't shit all over the Earth
+* Be civil
+
+
+## Conclusions and Final Thoughts
+
+* Most people value the same set of things
+* Keep living
+* Health
+* Money
+* Safety
+* Activity
+* Education 
+* Sex
+* Food
+* Art
+* Family
+* Religion
+* Spirituality
+* **Progress!!!!!**
+
+
+## Next Video is on Happiness LOL!!!
 
 
 
