@@ -72,15 +72,3 @@
 * Promote and encourage sources of happiness that are very much pro-progress 
 * People are way more alike than they are different, so we can all strive
   towards something great :) (some hippy shit)
-
-
- 
-
-
-
-
-
-
-
-
-
